@@ -1,7 +1,7 @@
 # hola!
 
 
-Desarrollador web full stack con experiencia de investigación, estudio y prácticas en Javascript, Reack js, Redux, Node js, Express, PostgreSQL, Secuelize, HTML 5, CSS 3.
+Soy un Desarrollador web full stack con experiencia de investigación, estudio y prácticas en Javascript, Reack js, Redux, Node js, Express, PostgreSQL, Secuelize, HTML 5, CSS 3.
 
 Recientemente culminé con éxito el intenso bootcamp de desarrollo web en Henry.
 
