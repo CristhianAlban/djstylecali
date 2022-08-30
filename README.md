@@ -10,5 +10,5 @@ Tengo un gran background como Productor de Audio y video, he trabajado como inde
 A lo largo de mi vida profesional he logrado desarrollar ciertas habilidades blandas algunas como la comunicación asertiva (comunicación y capacidad de escucha), llevar un orden cronológico estricto para el desarrollo de actividades (manejo del tiempo), guiar y retroalimentar un equipo de trabajo llevándolo a resultados positivos (manejo de conflictos, resolución de problemas, orientación a resultados)
 
 actualmente deseo migrar a la industria de la Tecnología, información e internet
-si tienes una propuesta para mi envíame un mensaje o contáctame al siguiente correo
-cristhianarleyalban@gmail.com
+si tienes una propuesta para mi envíame un mensaje al Linkedin  https://www.linkedin.com/in/cristhian-arley-alban-b67825235/
+o contáctame al siguiente correo cristhianarleyalban@gmail.com
